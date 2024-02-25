@@ -1,1 +1,1 @@
-# <a href="https://akashb2003.github.io/Coding-Raja-Technologies-Internship-1.github.io/index.html">Click here</a> to view the website
+# <a href="https://bluestar404.github.io/online-resume/index-1.html">Click here</a> to view the website
